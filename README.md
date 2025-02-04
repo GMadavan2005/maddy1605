@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @maddy160
-- 🌱 I’m currently learning ... python in general
 - 📫 How to reach me ...
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ...i am into fashion
